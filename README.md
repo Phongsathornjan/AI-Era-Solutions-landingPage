@@ -1,1 +1,1 @@
-live here : https://phongsathornjan.github.io/AI-Era-Solutions-landingPage/
+live here : https://ai-era.online/
